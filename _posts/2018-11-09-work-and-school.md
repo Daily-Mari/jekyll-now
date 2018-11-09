@@ -3,7 +3,7 @@ title: Struggling with school and work
 layout: post
 ---
 
-![School](/images/WorS.jpeg)
+![School](/images/school.jpeg)
 
 
 
