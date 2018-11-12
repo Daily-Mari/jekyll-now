@@ -1,6 +1,6 @@
 ---
 title: First Post
-layout: Post
+layout: post
 ---
 
 ![pumpkin](/images/pumpkin.png)
