@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title: working retail
@@ -13,7 +12,7 @@ I have been working retail for over a year now and one thing i truly love about 
 
 Although there is pros to working in retail there is also a ton of cons that we have all experienced. One main one is having rude and disrespectful customers treating you poorly as well as merchandise that when you realize how much you could hate people, which could also fit in to recovery because retail stores are always a mess we tend to have lots of mess to pick up. Finding things you love at the retail store you work in is a big pro because you would literally spend your entire check.Lastly the biggest con of working retail or any other job is WORKING like come on who likes to work at all.
 
-![h8it](images/h8it.jpg)
+![h8it](/images/h8it.jpg)
 
 
 Any ways there is some pros and cons about working retail but at the end of the day i truly do love my job and i would recommend those who would want to try it to at least give it a chance, and join a retail team.
