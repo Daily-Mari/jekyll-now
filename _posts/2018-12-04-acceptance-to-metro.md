@@ -3,7 +3,6 @@ layout:post
 title: I got accepted
 ---
 
-![metro](/images/metro.jpg)
 
 ## My acceptance and major
 
