@@ -10,7 +10,7 @@ title: James Charles Makeup Paletten featuring Morphe
 ##Get all types of looks!
 With the james charles palette you will be able to do anything from a simple brunch date makeup look to a bam colorful makeup look for a night out. The palette was made for the specific reason to have all types of colors and use it to create sevral makeup looks. 
  
-![simple](/images/simple.jpg)
+![james](/images/james.png)
 
 Simple makeup looks tend to have more browns, oranges, and light pinks
 
