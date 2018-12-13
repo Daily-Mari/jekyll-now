@@ -22,6 +22,10 @@ Colorful makeup lookes have a lot more color like yellow, green, blue, red, etc.
 Amazing palette because it has all colors needed but not only that it also has highlighter adn come up we all have to have that popin highlight. The palette has mattes and glittery eye shadows.
 
 ## Must knows
-The palette isnt only James Charles but it also features Morphe and if i may say Morphes makeup cosmetics are truly amazing not only there makeup palettes but also there brushes!Morphe has colaborated with many beauty gurus. Click here
+The palette isnt only James Charles but it also features Morphe and if i may say Morphes makeup cosmetics are truly amazing not only there makeup palettes but also their brushes!Morphe has colaborated with many beauty gurus. Click here
 [here](https://www.morphebrushes.com/)
 Where you could also get your palette!
+
+## Cost
+The Sisters Collection palette is $39 
+The James Charles Brish set is $149 which includes the makeup palette and 9 brushes with a beauty blender.
