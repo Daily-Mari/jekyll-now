@@ -1,6 +1,6 @@
 ---
 layout: post
-title: James Charles Makeup Paletten featuring Morphe
+title: James Charles Makeup Palette Featuring Morphe
 ---
 
 
